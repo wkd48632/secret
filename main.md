@@ -13,6 +13,3 @@
 나는 보통 불안하고 빠른 피드백을 얻고싶어하기에 결과인 척 꾸며서 내놓는 경우가 많다. 그러면 안된다.  
 실제 행동으로 이어지고, 실제 결과로 이어지게 하라.  
 가장 중요한 것은 마음 속에 있어야한다.
-
-O Senhor nunca escolhia por acaso os lugares que desejava ver habitados.  
-ㄴPaulo Coelho, O Monte Cinco
