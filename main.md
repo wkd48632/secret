@@ -14,5 +14,5 @@
 실제 행동으로 이어지고, 실제 결과로 이어지게 하라.  
 가장 중요한 것은 마음 속에 있어야한다.
 
-O Senhor nunca escolhia por acaso os lugares que desejava ver habitados.
-- Paulo Coelho, O Monte Cinco
+O Senhor nunca escolhia por acaso os lugares que desejava ver habitados.  
+ㄴPaulo Coelho, O Monte Cinco
